@@ -1,0 +1,1 @@
+Genitive [[Nouns]] show possession in a sentence and are translated with "of".

@@ -1,0 +1,1 @@
+Dative [[Nouns]] are the indirect object in a sentence and are translated with "to" or "for".

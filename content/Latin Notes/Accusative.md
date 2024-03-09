@@ -1,0 +1,1 @@
+Accusative [[Nouns]] are the direct object of a sentence, they receive the action.

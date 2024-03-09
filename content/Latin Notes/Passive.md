@@ -1,0 +1,1 @@
+The Passive voice means that the subject is receiving the action.

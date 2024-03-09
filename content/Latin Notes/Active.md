@@ -1,0 +1,1 @@
+The active voice in Latin means that the subject is doing the action.
